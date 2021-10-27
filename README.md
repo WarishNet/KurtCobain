@@ -1,2 +1,1 @@
--EMPIRE OF DESTRUCTION GO VROOM VROOM
--eod is a china gang
+-Modern Rock
